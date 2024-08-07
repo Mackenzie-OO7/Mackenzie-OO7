@@ -1,4 +1,4 @@
-### Hi there 👋🏾 I'm Levai Mackenzie Ágbàrà😁
+### Hi there 👋🏾 I'm Levai😁
 
 - 🔭 I'm a Technical Writer and a Blockchain developer
 - 🌱 I’m currently learning about Hyperlane
